@@ -9,7 +9,9 @@ Fujisawa station contains a fantastic mochi stand obscured from the internet. At
 It's labelled
 
 ***MOCHI***
+
 ***MOCHI***
+
 ***MOCHI***
 
 and its in the hallway between the main jr line and enoshima line.
