@@ -7,9 +7,11 @@ The following is a psa for anyone expecting to be anywhere near [fujisawa statio
 Fujisawa station contains a fantastic mochi stand obscured from the internet. At least as far as i can tell.
 
 It's labelled
-***MOCHI
-MOCHI
-MOCHI***
+
+***MOCHI***
+***MOCHI***
+***MOCHI***
+
 and its in the hallway between the main jr line and enoshima line.
 
 This was my best and favorite food from our 2 week tour across japan.
