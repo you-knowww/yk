@@ -14,7 +14,7 @@ It's labelled
 
 ***MOCHI***
 
-and its in the hallway between the main jr line and enoshima line.
+and its in the hallway between the main jr line and enoshima line. Towards the south exit i believe.
 
 This was my best and favorite food from our 2 week tour across japan.
 
